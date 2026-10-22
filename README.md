@@ -1,4 +1,2 @@
-Contact me @ contact@sunnybee.lol
-or 
-https://sunnybee.lol
-this github page is a joke btw
+Contact me @ contact@sunnybee.lol 
+Burning claude tokens to save time
